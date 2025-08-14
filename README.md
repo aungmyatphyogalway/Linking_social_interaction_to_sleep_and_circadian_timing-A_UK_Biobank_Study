@@ -1,1 +1,1 @@
-# Linking_social_interaction_to_sleep_and_circadian_timing-A_UK_Biobank_Study
+# Linking social interaction to sleep and circadian timing A UK Biobank Study
